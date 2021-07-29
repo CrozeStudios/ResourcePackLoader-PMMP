@@ -22,7 +22,7 @@
 
 # How to setup
 
-Watch This Video --->  <---
+Watch This Video ---> https://youtu.be/z1mo06yy0CA <---
 
 
 
